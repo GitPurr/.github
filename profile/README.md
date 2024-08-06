@@ -6,7 +6,7 @@ It doesn't matter; there's a place for you here. **Join us today** 🐱
 
 # Benefits
 
-- **Catnip Thursdays** - Every Thursday, the office will provide a special treat of catnip for employees to enjoy. Participation is optional but highly recommended for stress relief.
+- **Catnip Thursdays** - Every Thursday, the office will provide a special treat of catnip for members to enjoy. Participation is optional but highly recommended for stress relief.
 - **Laser Pointer Training** - Employees will be trained on how to effectively use laser pointers to motivate and engage their feline coworkers. Pointing skills are essential for meetings and presentations
 
 # Office Rules
