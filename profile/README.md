@@ -7,7 +7,8 @@ It doesn't matter; there's a place for you here. **Join us today** 🐱
 # Benefits
 
 - **Catnip Thursdays** - Every Thursday, the office will provide a special treat of catnip for members to enjoy. Participation is optional but highly recommended for stress relief.
-- **Laser Pointer Training** - Employees will be trained on how to effectively use laser pointers to motivate and engage their feline coworkers. Pointing skills are essential for meetings and presentations
+- **Mandatory Nap Time** - Cats are experts at sleeping up to 15 hours a day. Employees are encouraged to follow their lead and take regular power naps at their desks to recharge.
+- **Laser Pointer Training** - Employees will be trained on how to effectively use laser pointers to motivate and engage their feline coworkers. Pointing skills are essential for meetings and presentations.
 
 # Office Rules
 1. **No dogs allowed** - This is a cat-only workplace. Barking, chasing, or harassing our feline coworkers will not be tolerated.
